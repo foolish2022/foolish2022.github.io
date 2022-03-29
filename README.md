@@ -1,0 +1,1 @@
+# foolish2022.github.io
